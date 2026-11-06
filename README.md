@@ -1,0 +1,1 @@
+# preparazioneAllaVerifica2.0
